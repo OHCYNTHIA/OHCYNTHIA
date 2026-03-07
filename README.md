@@ -7,7 +7,7 @@ I'M ABOUT TO BREAK!
 <p align="center">
 hello! we are the oh cynthia collective! we're really huge acumen nation fanatics and encourage you to listen to them :) 
 <p align="center">
-you will usually find us hanging out with friends in safe #2, and occasionally in #1!
+you will usually find us hanging out with friends in safe #2, and occasionally in #1! if you try and encourage us to leave our friends, you will promptly be shot in the cranium.
 <p align="center">
 strict under 14 dniuf .. 20+ also dniuf or friends with friends. we have bad experiences with 20 year olds.
 <p align="center">
