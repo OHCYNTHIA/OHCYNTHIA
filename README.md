@@ -1,7 +1,7 @@
 <p align="center">
-<img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled1877_20260317223628.png">
-<p align="center">
 <img src="https://file.garden/aYVH1hlf0CoLr2FO/IMG_7824.png">
+<p align="center">
+<img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled1877_20260317223628.png">
 <p align="center">
 HELLO! OUR COLLECTIVE NAME IS "OHCYNTHIA". WE ARE A MID-TEENAGED USDD SYSTEM AND PREFER TO TALK TO THOSE UNDER THE AGE OF 20 AND OVER THE AGE OF 13. UNLESS YOU'RE ALREADY OUR FRIEND, YOU'RE GOOD!
 <p align="center">
