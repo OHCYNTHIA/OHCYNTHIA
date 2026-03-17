@@ -15,4 +15,4 @@ PLEASE DO NOT INTERACT IF YOU HAVE THE MENTALITY OF A 10- YEAR OLD. SYSKIDS ARE 
 <p align="center">
 IF YOU BEFRIEND US PURELY BECAUSE YOU CONSIDER US TO BE "PERFECT FOR YOU" IN THE BAD WAY, EXPECT US TO ACT DISTANT. WE WILL NOT LET THAT SHIT HAPPEN AGAIN.
 <p align="center">
-jakob, disrespectfully go rot in a ditch. why would you say you don't know us if you don't have anything to hide?
+jakob, disrespectfully go rot in a ditch and never contact us again. why would you say you don't know us if you don't have anything to hide?
